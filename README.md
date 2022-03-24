@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Teacher di Youtube
 - 💬 Ask me about Rasa titit kecoa
 - 📫 How to reach me: Facebook "Steven Johannes"
-- 😄 Pronouns: Goblok
+- 😄 Pronouns: Goblok, Anjing, Tolol
 - ⚡ Fun fact: Entahlah men, gw gak punya fakta yang menyenangkan
